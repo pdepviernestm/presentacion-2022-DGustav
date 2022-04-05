@@ -17,3 +17,6 @@ Este año empecé a entrenar Fútbol 11 en el campus de la facultad.
 
 ### Películas y series:
 - Mi película favorita en "Forrest Gump" y no tengo una serie favorita. 
+
+# Linkedin: www.linkedin.com/in/gustavo-porcel-047330178
+
