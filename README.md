@@ -4,6 +4,7 @@ Soy una persona muy competitiva por eso hice varios deportes como boxeo, voleyba
 Este año empecé a entrenar Fútbol 11 en el campus de la facultad. 
 
 <img src= "https://user-images.githubusercontent.com/102837372/161784416-f12acdb2-7888-4778-b28a-b0edd18b5ea2.jpg" width = "300" height ="auto" align="right">
+Legajo: 2027604
 
 ### MÚSICA:
 + Rock y todas sus variaciones. (En su mayoría Rock nacional. Banda Favorita: Attaque 77).
@@ -17,6 +18,10 @@ Este año empecé a entrenar Fútbol 11 en el campus de la facultad.
 
 ### Películas y series:
 - Mi película favorita en "Forrest Gump" y no tengo una serie favorita. 
+
+### Juegos
+- Tengo una pc equipada para jugar la mayoría de los juegos actuales pero siempre juego los 2 de siempre, así que al pedo la tengo. 
+
 
 # Linkedin: www.linkedin.com/in/gustavo-porcel-047330178
 
