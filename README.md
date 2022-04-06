@@ -15,13 +15,16 @@ Legajo: 2027604
 * Leí varios títulos de Stephen King. Mi libro favorito del autor y en general es "22/11/63".
 * El segundo autor del cuál más libro leí es Haruka Murakami.
 * No tengo un género favorito, todo libro que me recomienden con sumo entusiasmo lo voy a leer.
+* Quiero leer el manga "Berserk"
 
 ### Películas y series:
 - Mi película favorita en "Forrest Gump" y no tengo una serie favorita. 
+- Vi algunos animes (los super conocidos). Pero mi favorito es Shingeki no Kyojin
 
 ### Juegos
-- Tengo una pc equipada para jugar la mayoría de los juegos actuales pero siempre juego los 2 de siempre, así que al pedo la tengo. 
+- Tengo una pc equipada para jugar la mayoría de los juegos actuales pero siempre termino jugando los 2 de siempre (lol y Dark Souls), así que al pedo la tengo. 
 
 
-# Linkedin: www.linkedin.com/in/gustavo-porcel-047330178
+
+### Si alguno tiene un conocido en Mercado Libre podría pasarle mi perfil de [Linkedin](www.linkedin.com/in/gustavo-porcel-047330178). Gracias
 
