@@ -26,5 +26,5 @@ Legajo: 2027604
 
 
 
-### Si alguno tiene un conocido en Mercado Libre podría pasarle mi perfil de [Linkedin](www.linkedin.com/in/gustavo-porcel-047330178). Gracias
+### Si alguno tiene un conocido en Mercado Libre podría pasarle mi perfil de [Linkedin](https://www.linkedin.com/in/gustavo-porcel-047330178). Gracias
 
